@@ -11,7 +11,7 @@
 
 - 👨‍💻 All of my projects are available at [https://github.com/saraalimansi](https://github.com/saraalimansi)
 
-- 📫 How to reach me **www.linkedin.com/in/sarah-ali-271429330**
+- 📫 How to reach me **www.linkedin.com/in/sarah-ali-271429330** or **saraalimansi2@gmail.com**
 
 - ⚡ Always **learning new things**
 
